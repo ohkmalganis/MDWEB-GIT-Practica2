@@ -1,0 +1,1 @@
+La falta de entorno visual
